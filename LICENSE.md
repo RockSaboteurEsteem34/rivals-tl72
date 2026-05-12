@@ -1,4 +1,4 @@
-#  
+#  survive lava for brainrots instant Script offers the most advanced survive lava for brainrots Script, with anti-ban and silent aim. Perfect for
 
 
 
